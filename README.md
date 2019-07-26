@@ -1,3 +1,3 @@
-# Tuloy.co
+# Tuloy
 
 website under construction
