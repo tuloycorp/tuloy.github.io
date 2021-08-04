@@ -1,5 +1,5 @@
 # Tuloy
 
-Our website is undergoing maintenance and will be back online soon.
+Website under maintenance.
 
-© Tuloy Corporation 2019 onwards. All rights reserved.
+© Tuloy Corporation 2021 onwards. All rights reserved.
