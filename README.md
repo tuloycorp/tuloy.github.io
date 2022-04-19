@@ -2,4 +2,4 @@
 
 Website under maintenance.
 
-© Tuloy Corporation 2021 onwards. All rights reserved.
+© Tuloy Corporation 2022 onwards. All rights reserved.
